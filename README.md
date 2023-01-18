@@ -5,5 +5,6 @@
 - 👯 I’m looking to collaborate on any Blockchain related projects
 - 📫 How to reach me: 
   -  By email: aymaneigmiden@gmail.com
-  - Discord: Aymane#7157
+  - Discord: Sordgom#7157
 - ⚡ Fun fact: Visited every city in Morocco!
+
